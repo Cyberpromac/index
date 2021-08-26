@@ -1,3 +1,0 @@
-# proyec
-
-ejemplo
